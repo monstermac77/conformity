@@ -4,4 +4,4 @@ If you have feedback on this essay or would like to chat, I spend most nights ta
 
 # Discussion
 
-Conformity is a narrowing of the mental scope, an understanding that the world is the way it is, and the goal of life is to find one's place within it. 
+Conformity is a narrowing of the mental scope, an understanding that the world is the way it is, and that there is a goal of life, and that goal is to find one's place within it. 
