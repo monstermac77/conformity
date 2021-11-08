@@ -8,4 +8,4 @@ Although the connotation is often negative, the world needs conformists, and in 
 
 # Perpetuation
 
-"What do you want to be when you grow up?", an all too common question asked of children. Merely by asking this question, one is teaching the essence of conformity: the world is set, and you must find your place within it.
+"What do you want to be when you grow up?", an all too common question asked of children. Merely by asking this question, one is teaching the essence of conformity: the world is set, and you must find your place within it. A child's answer to this question might evolve, but it's by reflecting on the question itself that conformity is being learned (a nonconformist would answer "an artist", or "I want to be me").
