@@ -6,4 +6,4 @@ Conformity is a narrowing of the mental scope. It's an understanding that the wo
 
 # Perpetuation
 
-"What do you want to be when you grow up?", an all too common question asksed to children. Merely by asking this question, one is teaching the essence of conformity: the world is set, and you must find your place within it.
+"What do you want to be when you grow up?", an all too common question asked of children. Merely by asking this question, one is teaching the essence of conformity: the world is set, and you must find your place within it.
