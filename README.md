@@ -6,3 +6,4 @@ Conformity is a narrowing of the mental scope. It's an understanding that the wo
 
 # Perpetuation
 
+"What do you want to be when you grow up?"
